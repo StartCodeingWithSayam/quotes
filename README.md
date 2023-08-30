@@ -1,1 +1,1 @@
-# quotes
+The truth is rarely pure and never simple.  | **by Oscar Wilde**
