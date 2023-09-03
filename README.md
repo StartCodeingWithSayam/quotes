@@ -1,1 +1,1 @@
-The best thing to hold onto in life is each other. | **by Audrey Hepburn**
+Watch what you say, and whatever you say, practice it. | **by Soyen Shaku**
