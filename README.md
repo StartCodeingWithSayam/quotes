@@ -1,1 +1,1 @@
-Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  | **by Lao Tzu**
+Help others achieve their dreams and you will achieve yours. | **by Les Brown**
