@@ -1,1 +1,1 @@
-Help others achieve their dreams and you will achieve yours. | **by Les Brown**
+The friend is the man who knows all about you, and still likes you. | **by Elbert Hubbard**
