@@ -1,1 +1,1 @@
-The friend is the man who knows all about you, and still likes you. | **by Elbert Hubbard**
+He who laughs at himself never runs out of things to laugh at. | **by Epictetus**
