@@ -1,1 +1,1 @@
-Worry is a waste of emotional reserve. | **by Ayn Rand**
+Creative people are often found either disagreeable or intimidating by mediocrities. | **by Criss Jami**
