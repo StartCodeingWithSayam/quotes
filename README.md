@@ -1,1 +1,1 @@
-Creative people are often found either disagreeable or intimidating by mediocrities. | **by Criss Jami**
+Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence. | **by Sydney Smith**
