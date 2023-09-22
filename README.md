@@ -1,1 +1,1 @@
-Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence. | **by Sydney Smith**
+If you change the way you look at things, the things you look at change.  | **by Wayne Dyer**
