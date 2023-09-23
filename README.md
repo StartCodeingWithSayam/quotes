@@ -1,1 +1,1 @@
-If you change the way you look at things, the things you look at change.  | **by Wayne Dyer**
+The cost of leadership is self-interest. | **by Simon Sinek**
