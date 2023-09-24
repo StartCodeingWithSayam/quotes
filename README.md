@@ -1,1 +1,1 @@
-The cost of leadership is self-interest. | **by Simon Sinek**
+The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. | **by Bhagavad Gita**
