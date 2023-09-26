@@ -1,1 +1,1 @@
-Stop being a prisoner of your past. Become the architect of your future. | **by Robin Sharma**
+Choose a job you love, and you will never have to work a day in your life.  | **by Confucius**
