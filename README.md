@@ -1,1 +1,1 @@
-Choose a job you love, and you will never have to work a day in your life.  | **by Confucius**
+Belief creates the actual fact. | **by William James**
