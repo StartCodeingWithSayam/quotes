@@ -1,1 +1,1 @@
-Belief creates the actual fact. | **by William James**
+May you live all the days of your life. | **by Jonathan Swift**
