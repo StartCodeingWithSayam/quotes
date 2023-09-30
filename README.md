@@ -1,1 +1,1 @@
-May you live all the days of your life. | **by Jonathan Swift**
+Success comes to those who become success conscious. | **by Napoleon Hill**
