@@ -1,1 +1,1 @@
-Success comes to those who become success conscious. | **by Napoleon Hill**
+We must have strong minds, ready to accept facts as they are. | **by Harry S. Truman**
