@@ -1,1 +1,1 @@
-We must have strong minds, ready to accept facts as they are. | **by Harry S. Truman**
+Empty yourself of everything - let the mind become still. | **by Lao Tzu**
