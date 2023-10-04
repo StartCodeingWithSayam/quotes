@@ -1,1 +1,1 @@
-Empty yourself of everything - let the mind become still. | **by Lao Tzu**
+Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable. | **by Earl Nightingale**
