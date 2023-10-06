@@ -1,1 +1,1 @@
-To arrive at the simplest truth requires years of contemplation. | **by Isaac Newton**
+Life does not get better by chance, it gets better by change. | **by Jim Rohn**
