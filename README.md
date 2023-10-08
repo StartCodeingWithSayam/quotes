@@ -1,1 +1,1 @@
-To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. | **by Johann Wolfgang von Goethe**
+Luck is what happens when preparation meets opportunity.   | **by Seneca**
