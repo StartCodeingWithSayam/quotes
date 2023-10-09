@@ -1,1 +1,1 @@
-Luck is what happens when preparation meets opportunity.   | **by Seneca**
+Happiness depends upon ourselves. | **by Aristotle**
