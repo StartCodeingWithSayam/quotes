@@ -1,1 +1,1 @@
-Happiness depends upon ourselves. | **by Aristotle**
+Only the hand that erases can write the true thing. | **by Meister Eckhart**
