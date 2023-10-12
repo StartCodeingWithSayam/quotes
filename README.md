@@ -1,1 +1,1 @@
-We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop. | **by Mother Teresa**
+Everything will be ok in the end. If it's not ok, it's not the end. | **by John Lennon**
