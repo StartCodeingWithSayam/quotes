@@ -1,1 +1,1 @@
-Success is stumbling from failure to failure with no loss of enthusiasm. | **by Winston Churchill**
+When you're at the end of your rope, tie a knot and hold on. | **by Theodore Roosevelt**
