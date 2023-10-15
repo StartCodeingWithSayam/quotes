@@ -1,1 +1,1 @@
-When you're at the end of your rope, tie a knot and hold on. | **by Theodore Roosevelt**
+A Quitter never wins - and - a Winner never quits. | **by Napoleon Hill**
