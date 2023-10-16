@@ -1,1 +1,1 @@
-A Quitter never wins - and - a Winner never quits. | **by Napoleon Hill**
+Live your life as an exclamation rather than an explanation. | **by Isaac Newton**
